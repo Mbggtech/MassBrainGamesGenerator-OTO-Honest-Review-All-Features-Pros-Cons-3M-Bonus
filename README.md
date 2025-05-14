@@ -7,6 +7,93 @@
 <h3 class="" data-start="101" data-end="146"><strong data-start="105" data-end="146">A New Era for Digital Puzzle Creators</strong></h3>
 <p class="" data-start="148" data-end="560">Let’s get one thing straight right out of the gate—<strong data-start="199" data-end="346">MassBrainGamesGenerator isn’t just another digital product floating in the endless sea of online tools. It’s a revolution wrapped in simplicity</strong>, disguised as a piece of software. If you’ve ever dreamed of running your own sleek, fast-loading puzzle site without coding a single line or begging WordPress to cooperate, this might just be your next obsession.</p>
 <p class="" data-start="562" data-end="920">In a world that worships dopamine-fueled distractions and instant gratification, puzzle games have held their own. They’re evergreen, addictive in the best way, and monetizable as hell. <strong data-start="748" data-end="844">MassBrainGamesGenerator harnesses this magic and gives you the power to turn it into profit.</strong> No fluff, no filler—just a razor-sharp tool for creators who mean business.</p>
+# 🧠 MassBrainGamesGenerator – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/bkhkr88/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🧩 Front End (FE): MassBrainGamesGenerator  
+🎮 Instantly generate brain-training games for educational or monetization purposes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 💡 OTO 1: Source (IncPro + WL3L) – $127.00  
+🔧 Full source code access + white label rights for up to 3 licenses  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 🧠 OTO 2: Source (IncPro + WLST) – $127.00  
+💻 Includes Pro version with white label + single team license  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 📦 OTO 3: White Label (IncPro + 3L) – $63.00  
+🔄 White label edition with 3 license keys and Pro features  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 🗂️ OTO 4: White Label (IncPro) – $52.00  
+⚙️ Pro version with white labeling for one license  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 📊 OTO 5: White Label (ST + 3L) – $47.00  
+🧪 Standard version white label with 3 license slots  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 🔧 OTO 6: White Label (ST) – $37.00  
+📥 Standard version white label single use  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 👤 OTO 7: Pro Personal – $12.40  
+👨‍💻 Personal access to MassBrainGamesGenerator Pro  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 💼 OTO 8: Pro Reseller – $14.60  
+💸 Sell Pro version as your own product with reseller license  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **MassBrainGamesGenerator** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
 
 
 <hr class="" data-start="922" data-end="925" />
@@ -160,3 +247,90 @@
 <p class="" data-start="7136" data-end="7325">Let’s be honest—<strong data-start="7152" data-end="7202">the world doesn’t need another WordPress site.</strong> But it could always use a clever, fast, and beautifully crafted puzzle site that makes people think—and makes <em data-start="7313" data-end="7318">you</em> money.</p>
 <p class="" data-start="7327" data-end="7373">That’s the promise of MassBrainGamesGenerator.</p>
 <p class="" data-start="7375" data-end="7409">And it’s one you shouldn’t ignore.</p>
+# 🧠 MassBrainGamesGenerator – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/bkhkr88/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🧩 Front End (FE): MassBrainGamesGenerator  
+🎮 Instantly generate brain-training games for educational or monetization purposes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 💡 OTO 1: Source (IncPro + WL3L) – $127.00  
+🔧 Full source code access + white label rights for up to 3 licenses  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 🧠 OTO 2: Source (IncPro + WLST) – $127.00  
+💻 Includes Pro version with white label + single team license  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 📦 OTO 3: White Label (IncPro + 3L) – $63.00  
+🔄 White label edition with 3 license keys and Pro features  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 🗂️ OTO 4: White Label (IncPro) – $52.00  
+⚙️ Pro version with white labeling for one license  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 📊 OTO 5: White Label (ST + 3L) – $47.00  
+🧪 Standard version white label with 3 license slots  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 🔧 OTO 6: White Label (ST) – $37.00  
+📥 Standard version white label single use  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 👤 OTO 7: Pro Personal – $12.40  
+👨‍💻 Personal access to MassBrainGamesGenerator Pro  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 💼 OTO 8: Pro Reseller – $14.60  
+💸 Sell Pro version as your own product with reseller license  
+👉 `warriorplus[dot]com/o2/a/bkhkr88/0/g`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **MassBrainGamesGenerator** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
